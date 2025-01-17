@@ -1,0 +1,1 @@
+Please note that I am not responsible for anything that happens to the user that downloads the file. These files are not harmful and were built for fun, so please respect to not claim them as your own, nor can you modify the pre-existing code to your own liking. Thank you
